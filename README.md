@@ -4,6 +4,6 @@
 
 OLÁ! Sejam Bem-vindos ao meu livro de receitas:wave:
 
-- Bolo de Cenoura​ ​2​.​0:carrot: 
+- Bolo de Cenoura​​ 
 - Torta de Maça:apple:
 
